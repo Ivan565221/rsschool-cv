@@ -25,3 +25,11 @@ Missing
 ## Experience
 
 Missing
+
+## Education 
+
+Stage 0
+
+## English level
+
+A1
